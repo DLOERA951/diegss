@@ -1,1 +1,1 @@
-# diegss Hello I'm just tryin gthis for the first time.
+# diegss Hello I'm just trying this for the first time.
